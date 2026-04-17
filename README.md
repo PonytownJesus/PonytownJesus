@@ -23,6 +23,8 @@
   My main account is @orionsbowz, feel free to follow me there!
  
   I do not in any way think I am Jesus, I have a pony of him only because it is one of my favorite ponies I have made. If I talk about myself within through Jesus' perspective, it's simply a joke and is to be taken as such.
+
+  I am Catholic, not Chritisan. I respect all religions and everyone as long as they are respectful towards others (and overall not weirdos)
 <br><br>
   ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <br><br>
