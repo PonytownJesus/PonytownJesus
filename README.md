@@ -1,12 +1,12 @@
 <div align="center"> 
      
-![](https://komarev.com/ghpvc/?username=PonytownJesus&color=ADD8E6&height="163%"&label=Divine_Angels)
+![](https://komarev.com/ghpvc/?username=PonytownJesus&color=ADD8E6&height="200%"&label=Divine_Angels)
 
 <div align="center">
 <img src="https://i.pinimg.com/1200x/6a/e4/7a/6ae47ae74f77043a4ab54b37deb3793c.jpg" width="85%" />
-  
-⋮ ⌗ ┆ Hello, beings. ⋮ ⌗ ┆
-  
+     
+  ⋮ ⌗ ┆ Hello, beings. ⋮ ⌗ ┆
+     
   :𝐂𝐎𝐍𝐓𝐄𝐍𝐓𝐒:
   
   ༝ Who I am
