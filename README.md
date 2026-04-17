@@ -6,6 +6,10 @@
 <img src="https://i.pinimg.com/1200x/6a/e4/7a/6ae47ae74f77043a4ab54b37deb3793c.jpg" width="85%" />
      
   ⋮ ⌗ ┆ Hello, beings. ⋮ ⌗ ┆
+
+<div align="center"> 
+  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<br><br>
      
   :𝐂𝐎𝐍𝐓𝐄𝐍𝐓𝐒:
   
@@ -15,7 +19,8 @@
   
   ༝ DNIs
 <br><br>
-  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<div align="center"> 
+  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <br><br>
 <div align="left">
 𝜗ৎ I'm Orion, but you more than likely will know me as the Jesus who does laps or on occassion, Ao3 Jesus.
@@ -26,17 +31,22 @@
 
   I am Catholic, not Chritisan. I respect all religions and everyone as long as they are respectful towards others (and overall not weirdos)
 <br><br>
-  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<div align="center"> 
+  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <br><br>
+     
   <div align="right">
 ᛝ All the laps I take are not meant in anyway to intrude on fandom spaces, I would much rather people don't go around in fandom spaces and treating it like a raid since it is more of just a walk than anything. 
 
 ᛝ Please do not whisper me if you are going to complain about my pony, there are simple solutions if you do not like my pony at all.
 
 ᛝ I'm okay with people saying 'I love you' to me, but please do not be persistent or rude if I do not say it back. I try my best to respond to it but sometimes I don't feel like doing so and will just boop you to show I saw what you said.
+
 <br><br>
-  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<div align="center"> 
+  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <br><br>
+     
 <div align="center">
 𝜗ৎ DNI goes as follows:
 <div align="center">
