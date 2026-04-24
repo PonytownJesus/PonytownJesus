@@ -42,6 +42,8 @@
 
 ᛝ I'm okay with people saying 'I love you' to me, but please do not be persistent or rude if I do not say it back. I try my best to respond to it but sometimes I don't feel like doing so and will just boop you to show I saw what you said.
 
+ᛝ I do not like being praised and "bowed down" to. It makes me feel weird and uncomfortable. I won't speak out about it, but please do not do this!
+
 <br><br>
 <div align="center"> 
   ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
