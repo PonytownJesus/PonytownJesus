@@ -44,6 +44,8 @@
 
 ᛝ I do not like being praised and "bowed down" to. It makes me feel weird and uncomfortable. I won't speak out about it, but please do not do this!
 
+ᛝ I am also not comfortable with just random venting and being asked to fix issues happening in the real world. As much as I care about the earth and innocent humans within times like this, please don't ask me to fix it.
+
 <br><br>
 <div align="center"> 
   ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
