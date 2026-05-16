@@ -24,8 +24,8 @@
 <br><br>
 <div align="left">
 𝜗ৎ I'm Orion, but you more than likely will know me as Ao3 Jesus or on occassion, the Jesus who does laps.
-
- I have autism and ADHD, i try my best to understand social cues but it is a bit harder for me to please be forward with me if i ever make you uncomfortable or upset!!
+     
+I have autism and ADHD, i try my best to understand social cues but it is a bit harder for me to please be forward with me if i ever make you uncomfortable or upset!!
   
   My main account is @orionsbowz, feel free to follow me there!
  
