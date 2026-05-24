@@ -49,6 +49,8 @@ I have autism and ADHD, i try my best to understand social cues but it is a bit 
 ᛝ I am also not comfortable with just random venting and being asked to fix issues happening in the real world. As much as I care about the earth and innocent humans within times like this, please don't ask me to fix it since I don't like giving false hope.
 
 ᛝ I block freely. If you aren't willing to hide or block me I will gladly do so for you // or overall if I don't want to interact with you.
+
+ᛝ To follow up, I will block if you are near/at the protree. I will always try double checking if someone is an actual proshipper because sometimes people don't know, but if I am unable to confirm that you aren't a proshipper, you will be automatically blocked.
 <br><br>
 <div align="center"> 
   ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
