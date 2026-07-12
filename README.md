@@ -1,8 +1,3 @@
-<div align="center">
-<img src="https://i.pinimg.com/1200x/e6/51/88/e651889acb02fdcdf3a1e1fa6e960527.jpg" width="85%" />
-     
-♡ Happy Pride Month - Ponytown Jesus ♡
-
 <div align="center"> 
      
 ![](https://komarev.com/ghpvc/?username=PonytownJesus&color=ADD8E6&height="200%"&label=Divine_Angels)
